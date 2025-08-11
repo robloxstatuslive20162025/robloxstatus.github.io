@@ -1,2 +1,0 @@
-# robloxstatus.com
-Look at this page and check your statistics, the first game you played and the game you played the most.
